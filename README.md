@@ -1,4 +1,4 @@
-Abstractt about the research: Large Cardamom (Amomum subulatum) is a high-value, shade-
+Abstract about the research: Large Cardamom (Amomum subulatum) is a high-value, shade-
 loving spice crop predominantly cultivated in the hilly regions of India. The
 crop is highly susceptible to diseases caused by the Cardamom Bushy Dwarf
 Virus (CBDV) and the Large Cardamom Chirkey Virus (LCCV), which
